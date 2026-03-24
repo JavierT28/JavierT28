@@ -85,6 +85,6 @@ Graduation: May 2024 — GPA: 3.8
 ---
 
 # 📫 Contact
-**Email:** TorresJavier75@outlook.com
-**Email:** TorresJavier1639@gmail.com 
+**Email:** TorresJavier75@outlook.com  
+**Email:** TorresJavier1639@gmail.com  
 **Phone:** 646‑698‑9448
